@@ -1,3 +1,3 @@
-## Fellow viewers, this site is still being made.
+## Fellow viewers, this site is still in development.
 
 ## We'll see you there when it's done!
